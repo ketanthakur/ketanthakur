@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ketanthakur
-- 👀 I’m interested in Cyber Security
+- 👀 Enthusiastic in Cyber security field.
 - 📫 How to reach me https://www.linkedin.com/in/ketan-thakur-235a4216b/ 
 
 <!---
